@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @Phineas94
-- 👀 I’m interested in Data Science, Data Analysis and Business Analysis
-- 🌱 I’m currently learning Jupyter, Pandas, Python etc
-- 💞️ I’m looking to collaborate on anything related to Data Analysis
+-  I'm JAVA Developer. 
 - 📫 Reach me on panashetapera@hotmail.com
