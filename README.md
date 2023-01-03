@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @Phineas94
--  I'm JAVA Developer. 
+-  I'm JAVA Developer. Specifically Java EE7, If you have opportunities around that please email me. 
+-  I currently am based out of South Africa
 - 📫 Reach me on panashetapera@hotmail.com
