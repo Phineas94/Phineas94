@@ -1,7 +1,7 @@
-- 👋 Hi, I’m Panashe Tapera
+- 👋 hi, i’m Panashe Tapera
 
-  I'm a PPC and SEO marketer. I also am the solo-founder of Cryillic Marketing.
+  i'm a PPC and SEO marketer.i also am the solo-founder of Tirnanoc -(https://tirnanoc.com/).
 
-  In the past years, I've been employed with various Marketing Agencies in South Africa, UK and the US.
+  in the past years, i've been employed with various marketing agencies in Canada, UK and the US.
 
-  If you want to reach me, just email me on panashetapera@hotmail.com
+  if you want to reach me, just email me on panashetapera@hotmail.com.
