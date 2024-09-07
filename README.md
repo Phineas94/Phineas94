@@ -1,6 +1,6 @@
 - 👋 hi, i’m Panashe Tapera
 
-  I'm a PPC, SEO and Junior Wordpress developer.i also am the solo-founder of Tirnanoc -(https://tirnanoc.com/).
+  I'm a PPC, SEO andthe solo-founder of Tirnanoc -(https://tirnanoc.com/).
 
   in the past years, i've been employed with various marketing agencies in Canada, UK and the US.
 
